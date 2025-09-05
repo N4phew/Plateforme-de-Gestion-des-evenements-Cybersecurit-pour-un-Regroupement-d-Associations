@@ -1,1 +1,1 @@
-# Plateforme-de-Gestion-des-evenements-Cybersecurit-pour-un-Regroupement-d-Associations
+# Plateforme de Gestion des évènements Cybersecurit pour un Regroupement d'Associations
